@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @X3F4
+- 👋 Hi, I’m Faicmodz
 - 👀 I’m interested in Developing
 - 📫 How to reach me [EMAIL = SOON]
 
